@@ -1,5 +1,5 @@
 ﻿## GUIDE TO WRITING:  BY DR. JORDAN B. PETERSON
-	-[Original Source here.](https://medium.com/practicecomesfirst/dr-jordan-b-petersons-10-step-guide-to-clearer-thinking-through-essay-writing-1ab79a94937)
+[Original Source here.](https://medium.com/practicecomesfirst/dr-jordan-b-petersons-10-step-guide-to-clearer-thinking-through-essay-writing-1ab79a94937)
 
 ### WHILE READING:
 	-Notice anything that catches your attention
