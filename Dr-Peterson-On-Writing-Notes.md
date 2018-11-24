@@ -3,11 +3,11 @@
 
 ### WHILE READING:
 	-Notice anything that catches your attention
-	-Try not to cop down notes word for word.  Summarize and give the audiobook timestamp or page number.
+	-Try not to copy down notes word for word.  Summarize and give the audiobook timestamp or page number.
 		Ask yourself:  What did the excerpt mean?
 
 ### Create Outline:  
-	-1 sentence for every 100 words (1 paragraph) NOTE: It is okay to use two paragraphs to address a single idea.
+	-One sentence for every 100 words (1 paragraph) NOTE: It is okay to use two paragraphs to address a single idea.
 
 ### What is the question you are seeking to answer? (Ask the LORD)
 
